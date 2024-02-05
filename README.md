@@ -1,0 +1,1 @@
+# privacy-policy-for-focus-guard-app
